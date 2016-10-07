@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+I am on the quest to better myself everyday!
